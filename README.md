@@ -1,3 +1,1 @@
-Yashraj Singh 
-Front-end,MakeCode Arcade,Python [Developer]
-Additonal Skills-Photoshop and Video Editing 
+Front-End|NFT's|Web3 Geek|Learning Blockchain Development.....
